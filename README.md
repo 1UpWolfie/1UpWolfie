@@ -1,0 +1,4 @@
+- 👋 Hey there, I’m Wolfie(@1UpWolfie)
+- 👀 I’m a Programmer and Realism Builder on Roblox
+- 📫 You can contact me on any of my socials(Should all be linked on my carrd)
+- https://1upwolfie.carrd.co/
